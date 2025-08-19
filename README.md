@@ -1,2 +1,0 @@
-# xthaiholdings2
-thaiholdings
